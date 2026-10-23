@@ -31,4 +31,4 @@ I specialize in designing and deploying end-to-end workflow automations, intelli
 
 ---
 
-📫 **Connect with me:**  www.linkedin.com/in/murad-adil-01a461446 | **Location:** Lahore, Pakistan
+📫 **Connect with me:**   | **Location:** Lahore, Pakistan
